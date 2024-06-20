@@ -1,0 +1,2 @@
+# TALENTO-TECH-
+Inteligencia Artificial 
